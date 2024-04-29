@@ -2,7 +2,7 @@
 - 👀 I’m interested in SO MANY THINGS!
 - 🌱 I’m currently learning 3D modeling and animation. 
 - 💞️ I’m looking to collaborate on hardware projects related to gaming keyboards and controllers.
-- 📫 How to reach me ...(will update soon)
+- 📫 Contact me on Discord: https://discord.gg/JFyHdT6Dc5
 - ⚡ Fun fact: I'm a South African, from European ancestry, living in Asia. 
 
 <!---
